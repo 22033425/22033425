@@ -2,7 +2,7 @@
 - 👀 I’m interested in watching football games and listening music
 - 🌱 I’m currently learning different business analyticals skills
 - 💞️ I’m looking to collaborate on different famous brand to learn from them
-- 📫 raseldumkt0@gmail.com
+- 📫 raseldumkt0@gmail.com, https://www.linkedin.com/feed/, 0430050103
 - 😄 Pronouns: ...
 - ⚡ Fun fact: 
 
